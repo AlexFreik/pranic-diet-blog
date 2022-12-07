@@ -11,6 +11,7 @@
 2. Rub the cucumber on a coarse grater.
 3. Mix with greek yogurt, and you can enjoy!
 
+---
 ## Nutritional Informaiton
 100g contain 88 calories: *7g fat, 4 g carbs, and 3g protein*.
 
