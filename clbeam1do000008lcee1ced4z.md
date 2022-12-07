@@ -9,21 +9,12 @@
 
 ### Spices
 
-*   1 tbsp spices mix
+*   1 tbsp spices mix (Sambhar Masala or Provencal herbs or what you have)
     
 *   salt to taste
     
 
-For spices, you can use either of this
-
-*   Oregano, black pepper, smoked paprika, basil
-    
-*   Sambar Masala
-    
-*   Provencal herbs
-    
-*   or ready-made potato mixture
-    
+If you don't have Sambhar Masala you can use oregano, black pepper, smoked paprika, basil or a ready-made potato mixture.
 
 ## Steps
 
@@ -37,6 +28,10 @@ For spices, you can use either of this
 Goes well with [Yogurt-Mint Sauce](https://pranic-diet.com/yogurt-mint-sauce).
 
 * * *
+
+*This is a video with the recipe!*
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bfHe7sOydsU"></iframe>
 
 ## **Nutritional Informaiton**
 
