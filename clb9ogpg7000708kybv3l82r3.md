@@ -1,4 +1,4 @@
-# Fresh Beet Soup
+# Fresh Beet Soup (A Taste of Isha)
 
 # Ingredients
 
