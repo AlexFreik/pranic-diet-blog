@@ -35,12 +35,13 @@
 
 May be served at room temperature or chilled.
 
-Yields 2-3 servings.
-
-* * *
+---
 
 ## **Nutritional Informaiton**
 
 One serving contains 300 calories: *21g fat, 25g carbs, and 4g protein*.
 
 ![](https://cdn.hashnode.com/res/hashnode/image/upload/v1670195707247/OYVGklzz2.png align="center")
+
+---
+#food #soup #isha #vegan
