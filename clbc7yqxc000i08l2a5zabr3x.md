@@ -15,4 +15,3 @@ Cooking time – 5 min.
 ## Nutritional Informaiton
 100g contain 88 calories: *7g fat, 4 g carbs, and 3g protein*.
 
-
