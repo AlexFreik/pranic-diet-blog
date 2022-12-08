@@ -2,7 +2,7 @@
 
 ## Ingredients
 
-*   1 kg (~6 middle sized) potatoes
+*   1 kg (~6 middle-sized) potatoes
     
 *   3 tbsp olive oil
     
