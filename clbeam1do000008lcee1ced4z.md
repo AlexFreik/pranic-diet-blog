@@ -22,7 +22,7 @@ If you don't have Sambhar Masala you can use oregano, black pepper, smoked papri
     
 2.  Spread the slices on a baking sheet, sprinkle with spices, and salt, then sprinkle abundantly with oil.
     
-3.  Bake at a temperature of about 180-190 C degrees for about 30 minutes. If you have foil you can put cover the potatoes with it, and put 220 C.
+3.  Bake at a temperature of about 180-190 °C for about 30 minutes. If you have foil you can put cover the potatoes with it, and put 220 °C.
     
 
 Goes well with [Yogurt-Mint Sauce](https://pranic-diet.com/yogurt-mint-sauce).
