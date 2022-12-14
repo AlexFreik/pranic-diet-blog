@@ -32,7 +32,9 @@
 
 ## Steps
 
-1.  Mix everything 😂
+1.  Prepare poha: rinse it 3 times, and drain excess water so poha remains only slightly moist.
+    
+2.  Mix everything 😂
     
 
 * * *
