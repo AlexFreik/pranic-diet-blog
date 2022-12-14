@@ -47,4 +47,4 @@
 
 * * *
 
-#food #vegan #easy #recipe #isha #sadhguru
+#food #recipe #easyrecipe #vegan #pranic #sattvic #isha #sadhguru
