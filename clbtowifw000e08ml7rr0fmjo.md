@@ -24,11 +24,13 @@
 
 ## Steps
 
-1.  Dice potatoes into large cubes and boil them for 10-15 mins until they are soft.
+1.  Dice potatoes into large cubes.
     
-2.  Pure water.
+2.  Boil potatoes for 10-15 mins until they are soft.
     
-3.  Mix everything, and start smashing with a stick.
+3.  Pure water.
+    
+4.  Mix everything, and start smashing with a stick.
     
 
 Goes well with [**Yogurt-Mint Sauce**](https://pranic-diet.com/yogurt-mint-sauce).
