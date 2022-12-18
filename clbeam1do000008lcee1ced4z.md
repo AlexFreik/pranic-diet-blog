@@ -9,12 +9,12 @@
 
 ### Spices
 
-*   1 tbsp spices mix (Sambhar Masala or Provencal herbs or what you have)
+*   1 tbsp spices mix (Sambhar Masala or Provencal herbs or Curry Masala)
     
 *   salt to taste
     
 
-If you don't have Sambhar Masala you can use oregano, black pepper, smoked paprika, basil or a ready-made potato mixture.
+If you don't have Sambhar Masala you can mix of oregano, black pepper, smoked paprika, basil or use a ready-made potato mixture.
 
 ## Steps
 
