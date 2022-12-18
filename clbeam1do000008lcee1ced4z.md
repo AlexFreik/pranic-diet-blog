@@ -18,7 +18,7 @@ If you don't have Sambhar Masala you can mix of oregano, black pepper, smoked pa
 
 ## Steps
 
-1.  Wash the potatoes, cut them into large slices and can be baked with the peel.
+1.  Cut potatoes into large slices. You can bake with the peel.
     
 2.  Spread the slices on a baking sheet, sprinkle with spices, and salt, then sprinkle abundantly with oil.
     
