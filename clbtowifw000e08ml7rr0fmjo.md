@@ -24,11 +24,11 @@
 
 ## Steps
 
-1.  Cut them into large slices and can be baked with the peel.
+1.  Dice potatoes into large cubes and boil them for 10-15 mins until they are soft.
     
-2.  Spread the slices on a baking sheet, sprinkle with spices, and salt, then sprinkle abundantly with oil.
+2.  Pure water.
     
-3.  Bake at a temperature of about 180-190 °C for about 30 minutes. If you have foil you can put cover the potatoes with it, and put 220 °C.
+3.  Mix everything, and start smashing with a stick.
     
 
 Goes well with [**Yogurt-Mint Sauce**](https://pranic-diet.com/yogurt-mint-sauce).
