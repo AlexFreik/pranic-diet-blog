@@ -1,7 +1,5 @@
 # Smashed Potatoes
 
-## 🔪 10 min | ⏳ 30 min | 🍽 2
-
 ## **Ingredients**
 
 *   3 cups diced potatoes
