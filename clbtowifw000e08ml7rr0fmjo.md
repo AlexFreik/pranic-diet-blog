@@ -1,4 +1,4 @@
-# Smashed Potatoes
+# Mashed Potatoes
 
 ## **Ingredients**
 
