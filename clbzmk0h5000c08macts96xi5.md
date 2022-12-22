@@ -4,11 +4,11 @@
 
 *   1 cup of jaggery (or you can cook without sugar, and add honey later)
     
-*   1 cup of greek yogurt
+*   1 cup of fatty greek yogurt
     
 *   0.5 cup of butter
     
-*   1.5 cup of whole-grain flour
+*   1.5 cups of whole-grain flour
     
 *   1.25 cups of express oat flakes
     
