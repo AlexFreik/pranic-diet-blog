@@ -33,7 +33,7 @@
 
 ## **Nutritional Informaiton**
 
-100g contains 34 calories: *1g fat, 5g carbs, and 2.1g protein*.
+100g contains 34 calories: *1g fat, 5g carbs, and 2g protein*.
 
 ---
 
