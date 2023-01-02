@@ -1,7 +1,7 @@
 # Cabbage Salad
 
-Ingredients
 
+## Ingredients
 * 4 cups Chinese cabbage
     
 * 2 medium tomatoes
@@ -11,14 +11,14 @@ Ingredients
 * 5 Tbsp Greek Yogurt &gt;10%
     
 
-Spices
+### Spices
 
 * 1 tsp salt
     
 * 1 Tbsp Chanki Chat Masala (you can replace it with another masala or just add black pepper)
     
 
-Steps
+## Steps
 
 1. Dice cabbage & tomatoes.
     
