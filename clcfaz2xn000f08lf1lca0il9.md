@@ -8,6 +8,8 @@ Ingredients
     
 * 1 cup canned green peas
     
+* 5 Tbsp Greek Yogurt &gt;10%
+    
 
 Spices
 
@@ -22,5 +24,17 @@ Steps
     
 2. Mix everything.
     
+
+---
+
+*This is a video with the recipe!*
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cvq4h7mmdXg"></iframe>
+
+## **Nutritional Informaiton**
+
+100g contains 91 calories: *5g fat, 10g carbs, and 1.4g protein*.
+
+---
 
 #food #recipe #easyrecipe #vegan #salad #rawfood #pranic #sattvic #isha #sadhguru
