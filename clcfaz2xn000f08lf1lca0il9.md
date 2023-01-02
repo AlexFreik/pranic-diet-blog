@@ -1,7 +1,7 @@
 # Cabbage Salad
 
-
 ## Ingredients
+
 * 4 cups Chinese cabbage
     
 * 2 medium tomatoes
@@ -33,7 +33,7 @@
 
 ## **Nutritional Informaiton**
 
-100g contains 91 calories: *5g fat, 10g carbs, and 1.4g protein*.
+100g contains 34 calories: *1g fat, 5g carbs, and 2.1g protein*.
 
 ---
 
