@@ -15,7 +15,7 @@
 
 * 1 tsp salt
     
-* 1 Tbsp Chanki Chat Masala (you can replace it with another masala or just add black pepper)
+* 1 Tbsp Chunki Chat Masala (you can replace it with another masala or just add black pepper)
     
 
 ## Steps
