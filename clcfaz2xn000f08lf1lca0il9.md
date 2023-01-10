@@ -37,4 +37,4 @@
 
 ---
 
-#food #recipe #easyrecipe #vegan #salad #rawfood #pranic #sattvic #isha #sadhguru
+#food #recipe #easyrecipe #vegetarian #salad #rawfood #pranic #sattvic #isha #sadhguru
