@@ -1,6 +1,6 @@
 # Bread Pie
 
-> Not the most pranic thing, but better than donuts, cookies and other sweets with white sugar, E-codes and preservatives.
+> Not that pranic but a great alternative to donuts, cookies and other sweets with white sugar, E-codes and preservatives.
 
 ## Ingredients
 
