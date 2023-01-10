@@ -22,7 +22,7 @@
 3. Add a layer of honey and then yogurt.
     
 
-![](https://cdn.hashnode.com/res/hashnode/image/upload/v1673387544717/56750a59-4dd0-484e-845b-58970a65e60c.png align="center")
+![](https://cdn.hashnode.com/res/hashnode/image/upload/v1673389120856/e414ca8f-4583-4899-9c0d-975924a8cad0.png align="center")
 
 ---
 
